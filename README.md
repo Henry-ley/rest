@@ -1,5 +1,6 @@
 ### 领取资料方式；
 #### 扫描或添加VX；Girl_2000-2020 以及进QQ群；[891点击 488进入 181](https://jq.qq.com/?_wv=1027&k=opRLOWdc)领取资料
+![输入图片说明](https://images.gitee.com/uploads/images/2021/0512/134753_6b084030_9107704.jpeg "微信二维码.jpg")
 
 
 
